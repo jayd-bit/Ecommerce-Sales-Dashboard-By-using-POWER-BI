@@ -43,7 +43,7 @@ MIT LICENSE
 
 ## Contact
 
-191fa06004@gmail.com
+jaydipsingh954@gmail.com
 
 ---
 
